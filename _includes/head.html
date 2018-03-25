@@ -13,8 +13,6 @@
 
   <link rel="alternate" type="application/rss+xml" title="{{ site.title }} {{ site.title-separator }} {{ site.description }}" href="{{ site.baseurl }}/feed.xml" />
 
-  {% include gtm_head.html %}
-
   {% if layout.common-ext-css %}
     {% for css in layout.common-ext-css %}
       {% include ext-css.html css=css %}
@@ -49,11 +47,6 @@
     {% for font in page.googlefonts %}
       <link rel="stylesheet" href="//fonts.googleapis.com/css?family={{ font }}" />
     {% endfor %}
-  {% endif %}
-
-    <!-- Facebook OpenGraph tags -->
-  {% if site.fb_app_id %}
-  <meta property="fb:app_id" content="{{ site.fb_app_id }}" />
   {% endif %}
 
   {% if page.meta-title %}
@@ -115,10 +108,6 @@
   <meta name="twitter:image" content="{{ page.share-img }}" />
   {% elsif site.avatar %}
   <meta name="twitter:image" content="{{ site.url }}{{ site.avatar }}" />
-  {% endif %}
-
-  {% if site.matomo %}
-  {% include matomo.html %}
   {% endif %}
 
 </head>
