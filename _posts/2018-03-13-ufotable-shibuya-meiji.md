@@ -1,0 +1,37 @@
+---
+layout: post
+title: Ufotable Cafe, Shibuya, and Meiji Shrine
+---
+
+After the severe disappointment of the Ufotable Cafe being closed on Monday, we decided to give the cafe another shot.
+
+We had a rather slow start to the day, realizing we didn't need to rush out the door. We wanted to have lunch at the cafe, so we didn't leave the hotel until about 10:00am.
+
+Upon reaching our destination, I promptly walked in the door and was surprised by what followed. I was shoo'd out the door (as politely as possible). After a few moments of confusion, I was met outside by a waitress holding a menu and some numbered cards. She spoke to me entirely in Japanese, and unfortunately I couldn't piece together what she was saying. She showed me both sides of the menu (one side was a Fate/Stay Night: Heaven's Feel theme, and the other a Today's Menu for Emiya-san's Family theme). I had no idea what she was saying, so I assumed maybe I needed to choose a theme. I uttered "Heaven's Feel," which was followed by a look I can only describe as a mix of pity and confusion. At this point I think the waitress realized I had no idea what was going on, then handed me a numbered ticket with the 11:30am-1:00pm time slot written on it.
+
+Hollie and I rested at a nearby park bench for about half an hour before making our way back to the cafe.
+
+There were about twenty people lined up outside the cafe, so Hollie and I took our place in line. At exactly 11:30am, we were escorted into the cafe and seated at our assigned table. There were about half a dozen large cardboard cut outs of various Fate characters throughout the cafe. A decent chunk of the cafe was a dedicated shop, with a wide variety of novelty items like a Gae Bolg letter opener, some character themed pint glasses, and plenty of posters. Most impressively, there was a large exhibit displaying actual key frames drawn for notable scenes in the Heaven's Feel movie. Sadly, no photography was allowed of the exhibit.
+
+To place an order, we were given a sheet with the menu items written on it (entirely in Japanese, with no pictures), and you had to put a checkmark next to the items you wanted to order. Thankfully, the Google Translate app was able to help us out with the menu.
+
+Hollie and I both got a fruity drink (non-alcoholic), which tasted mostly like cranberry juice. Hollie didn't get an entree and went straight to a parfait for dessert. I ordered the mapo tofu with a side of rice, as well as a fruity crepe for dessert. When our waitress came to pick up the sheet of paper with our selections, she asked me a question in Japanese. I couldn't understand enough of the question to derive what she meant, so eventually she just asked me in English, "with or after?" and pointed to the dessert I ordered on the menu. I said I wanted the dessert after my meal. All the food was exquisite! 
+
+After admiring the key frame exhibit and purchasing a few small items, we headed out to Shibuya on a full stomache.
+
+We saw the famous Shibuya Crossing, which is the busiest intersection in Japan. It was just an unending sea of people. There were a lot of shops nearby, so we looked around a little.
+
+A coffee shop caught Hollie's eye, and we stepped in for a quick snack and some tea. There were no seats downstairs, so we headed to the second floor. Turns out, the second floor is the smoking section. It was a little bit of a shock, coming from the US where smoking is illegal in almost all public places.
+
+After the pit stop, the last thing on our agenda for the day was to visit Meiji Shrine. It was a quick train ride to the Harajuku station.
+
+Right outside the Harajuku station is a famous street known for fashion called Takeshita. Since it was right outside the station we took a quick peek, then headed toward the shrine.
+
+The shrine is located in the middle of a gorgeous park. If not for the train noise you might even forget you're in the middle of Tokyo. After a leisurely stroll, we arrived at the main building of the shrine. Hollie and I were tempted to buy a couple of wooden blocks to write wishes on, but decided to maybe do it at another shrine.
+
+After we got back to the hotel, we both got hungry and figured this is as good a time as any to eat at a Japanese McDonalds. We took an evening walk a few blocks to the nearest McDonalds. While many parts were familiar, it was a little odd feeling out of place as an American at a McDonalds. The menu is different, not to mention in another language. When we ordered we had to point at what we wanted. I ordered a Teriyaki Burger and an Egg Burger. I wanted to try the Japan exclusive items! Hollie got a shrimp croquette sandwich.
+
+After our meal, we wanted to take advantage of the upcoming food coma and get a good night's sleep!
+
+
+

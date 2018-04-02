@@ -1,0 +1,32 @@
+---
+layout: post
+title: Nakano and Shinjuku
+---
+
+Since it was a clear day with beautiful weather, Hollie and I decided it was the perfect morning to go to the Tokyo Metropolitan Government Building observation deck.
+
+When we got there it was very obvious how popular the spot is with tourists. There was a line to ride the elevator up, and most of the visitors were foreigners.
+
+The view from the deck was stunning. It's hard to imagine just how huge and populous Tokyo is until you get up there, and all you can see is skyscrapers in every direction.
+
+Even though it was a fairly clear day, we weren’t able to get a picture perfect view of Mt. Fuji. We could definitely make the mountain out in the distance, but it was a bit hazy and difficult to capture on camera.
+
+Next up on our list (and my personal top thing to do in Japan) was to get lunch at the Ufotable Cafe in Nakano.
+
+To our dismay, the cafe was a 20 minute walk from the nearest station. However, it was nice to see a more suburban side of Tokyo in Nagano while we walked.
+
+Then the worst happened. It turns out the cafe is closed on Mondays. All that travel for nothing!
+
+Luckily there’s a huge shopping complex in Nagano called Nakano Broadway. We went through Nakano Broadway on our way back to the station, and a ramen shop caught our attention. It was slightly embarrasing because when we walked in, we went straight to finding a seat, but there's a ticket machine at the entrance that you're supposed to order with. One of the employees quickly corrected our mistake.
+
+The ramen was extremely tasty, and exactly the type of meal I needed after the cafe disappointment.
+
+With our hunger sated, we did a bit more browsing around Nakano Broadway, then headed back to Shinjuku to experience a samurai museum.
+
+While walking to the museum, we heard Godzilla! Turns out we wandered right under a giant Godzilla head prop that sits atop a movie theater. For some reason we didn’t get any pictures of it though. Definitely regret that.
+
+The samurai museum was fascinating. Hollie really appreciated that the museum caters to foreigners and doesn't assume any knowledge of Japanese history for the tour. I read a lot of Japanese history because of my interest in samurai, so I wished the tour was a little more in depth, but I learned some new things nonetheless! Apparently Nobunaga Oda’s armor was the inspiration behind Darth Vader’s look!
+
+We also got to see a sword fighting demonstration from someone whose been practicing kendo for over ten years.
+
+After all the walking in Nagano, we were really worn out, so we decided to call it a day at the end of the museum tour.

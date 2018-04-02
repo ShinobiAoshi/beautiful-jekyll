@@ -1,0 +1,38 @@
+---
+layout: post
+title: Sensoji Temple and Akihabara
+---
+
+Unfortunately, my wish for good restful sleep was not granted. The both of us kept waking up in the middle of the night. Eventually we decided to just get out of bed and go to 7-Eleven so we could check out the breakfast items. Let me tell you, 7-Eleven in Japan is in a whole other league when it comes to food!
+
+After breakfast, we decided to head over to Sensoji Temple.
+
+We felt a little more confident in our ability to navigate the train system, but the closest station to the temple was on a private line, the Tsukuba Express. We opted to buy a Suica card since our JR passes don't cover non-JR lines. Luckily, the woman at the information booth in Akihabara station spoke perfect English and directed us to where we could purchase a Suica card.
+
+After arriving at our destination, we walked through a sea of vendors selling all kinds of food and souvenirs.
+
+The temple and tower were absolutely gorgeous. Hollie and I both cleansed ourselves at the well before each making a quick prayer in the temple.
+
+Next, we made a quick detour to Kappabashi (Kitchen Town) since we were in the area. Hollie ended up buying a couple of small things there. Even though I didn't end up purchasing anything, it was interesting to see the wealth of restaurant grade items available to Japanese chefs to run their restaurants. In particular, the plastic food models were really fun to browse through. They are extremely common in window displays outside of restaurants.
+
+The next stop on our list was Akihabara! We had a little trouble finding exactly where we wanted to go, since we didn’t know the name of any streets.
+
+We stumbled upon the Square Enix and Gundam cafes while we were wandering. We also did a brief walk through Yodobashi Akiba, which is a *huge* electronics store. It was absolutely incredible. If I lived in Tokyo, I would definitely buy all of my electronics there. I could see myself browsing there for hours on end.
+
+Eventually we found the main strip of Akihabara, with all the anime merchandise that you could ever dream of. One of the things that stood out was all the prize machines around with exclusive merch. I gave one a shot, but unfortunately didn’t win the figure I was hoping for. I’ll definitely have to practice playing those prize games for my next trip.
+
+After browsing a few shops, the two of us decided we were hungry so we made our way to Mononopu. Mononopu is a Sengoku era themed maid cafe. Our maid was “Honda Tone.” I had to ask her who that was historically. Come to find out, Tone is one of Honda Tadakatsu's sons (Tadakatsu is one of the most famous warriors in Japan's history). Although there was a slight language barrier which lead to some awkward silences, Tone knew enough English for us to stumble through lunch and have some small talk on the side. She did seem very impressed with how much Japanese we knew, and especially how much Japanese history I am familiar with.
+
+For my first time at a maid cafe, I had to do the cliche. I ordered an omurice with something written in ketchup. The omurice was tasty, and I was ecstatic to have Tone write my name in ketchup and a few other things all over the plate. It was so cute!
+
+After lunch, we did a bit more browsing around Akihabara.
+
+The last shop we went to before calling it a night was the Mandarake Complex. I was dead set on getting a copy of Fate/Stay Night on PC. I tried looking for it myself, but eventually I had to ask one of the employees to help me find it. I pulled up a picture of the game cover on my phone so there wouldn't be any misunderstanding. He knew exactly what I meant and promptly grabbed a copy from the back room.
+
+He then immediately took the game out of the plastic wrap. Internally I started freaking out! Why would he take the plastic off?!
+
+It turns out it was a used copy, and he was showing me the damage to the case and disc. Phew. I already played the English patched version of the game, so I didn’t really care what condition it was in. I just love the game so much I wanted a physical copy. I’m so glad I was finally able to get one!
+
+Hollie wanted to buy a certain manga, so we went to the floor where we saw manga previously. Unfortunately, neither of us have any idea how the books are organized so she had to ask for help. The manga she was looking for is a yaoi manga, and apparently there’s a completely different floor for yaoi. The employee kind of chuckled and directed us to the correct floor. After getting some help from another employee, Hollie got her manga.
+
+All in all a very fun and rewarding day!
