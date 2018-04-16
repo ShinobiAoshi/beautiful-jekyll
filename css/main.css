@@ -88,6 +88,12 @@ img {
   max-width: 100%;
 }
 
+.image-caption {
+  text-align: center;
+  font-size: 0.8rem;
+  color: light-grey;
+}
+
 .linked-section {
   padding-top: 60px;
   margin-top: -25px;
