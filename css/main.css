@@ -91,9 +91,9 @@ img {
 .image-caption {
   display: block;
   text-align: center;
-  font-size: 14px;
-  color: light-grey;
+  font-size: 16px;
   font-style: italic;
+  margin-top: -15px;
 }
 
 .linked-section {
