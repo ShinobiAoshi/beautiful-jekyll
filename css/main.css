@@ -101,6 +101,14 @@ img {
   margin-top: -25px;
 }
 
+.footnotes ol {
+    font-size: 14px;
+}
+
+.footnotes p {
+    font-size: 14px;
+}
+
 /* --- Navbar --- */
 
 .navbar-custom {
