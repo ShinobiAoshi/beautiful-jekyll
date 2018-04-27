@@ -103,6 +103,7 @@ img {
 
 .footnotes ol {
     font-size: 14px;
+    -webkit-padding-end: 40px;
 }
 
 .footnotes p {
